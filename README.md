@@ -6,5 +6,8 @@ https://github.com/mabeerkhan/ncai-computer-vision/assets/129393051/370b827d-c28
 
 
 
-https://github.com/mabeerkhan/ncai-computer-vision/assets/129393051/68e10f49-ab58-4ec2-9e1d-2b8c8c72e69e
+https://github.com/mabeerkhan/ncai-computer-vision/assets/129393051/d3effd97-777e-4c53-94f7-e6fbdaf996d3
+
+
+
 
